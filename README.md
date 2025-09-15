@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Shartley
 - 👀 I’m interested in coding and Legos!
-- 💞️ I’m looking to collaborate on anyyy projects
 - 📫 How to reach me: IG samaiiworld
 - 😄 Pronouns: she/her
 
